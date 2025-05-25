@@ -1,1 +1,1 @@
-<img width="427" alt="düğün web sitesi" src="https://github.com/user-attachments/assets/0908eb98-27cb-47ab-bbd4-dee18333db51" />
+<img width="451" alt="ekranresmiposter" src="https://github.com/user-attachments/assets/d5211d1a-12d9-46aa-a25a-55ab6fefaa13" />
